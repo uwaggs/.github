@@ -12,11 +12,11 @@ Our main objectives are to **facilitate collaboration** on projects and teams fo
 
 ### What do we do?
 
-We host **bi-weekly hybrid sessions** with presentations on statistical applications of data across different domains of sport. We also send **weekly emails** with information about analytics conferences and competitions. We **maintain channels** for students who desire to work together and **publicize student projects** wherever possible for public visibility. Finally, we share external **co-op and internship opportunities** in the sports analytics industry with our members.
+We host **[bi-weekly hybrid sessions](https://www.uwaggs.ca/sessions.html)** with presentations on statistical applications of data across different domains of sport. We also send **weekly emails** with information about analytics conferences and competitions. We **maintain channels** for students who desire to work together and **publicize student projects** wherever possible for public visibility. Finally, we share external **co-op and internship opportunities** in the sports analytics industry with our members.
 
 ### How are we doing?
 
-As of Spring 2024, UWAGGS has received interest from **over 180** students representing **all 6 faculties** across campus, as well as members from several other universities across Canada. Our members have presented research and projects at conferences in Canada, the United States, and Europe. **Over 35 sport** and game disciplines are represented in the club, including soccer, hockey, baseball, basketball, and many e-sports.
+As of Spring 2024, UWAGGS has received interest from **over 180** students representing **all 6 faculties** across campus, as well as members from several other universities across Canada. Our members have presented [research projects](https://www.uwaggs.ca/projects.html) at conferences in Canada, the United States, and Europe. **Over 35 sport** and game disciplines are represented in the club, including soccer, hockey, baseball, basketball, and many e-sports.
 
 ### Interested? Get in Touch!
 
