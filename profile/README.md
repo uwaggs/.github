@@ -1,4 +1,4 @@
-## Welcome! 🦆
+## Welcome to UWAGGS! 🦆
 
 <!-- INSERT MASSIVE UWAGGS LOGO HERE -->
 
