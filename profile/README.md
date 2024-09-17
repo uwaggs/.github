@@ -1,6 +1,6 @@
-## Welcome to UWAGGS! 🦆
+## Welcome to UWAGGS! 
 
-<!-- INSERT MASSIVE UWAGGS LOGO HERE -->
+![458338789_1650691038825898_732758986432715506_n](https://github.com/user-attachments/assets/9ab27815-ae4c-4d4e-b3db-5c43fc39130f)
 
 ### Who are we?
 
