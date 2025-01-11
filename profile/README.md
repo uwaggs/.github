@@ -16,7 +16,7 @@ We host **[bi-weekly hybrid sessions](https://www.uwaggs.ca/sessions.html)** wit
 
 ### How are we doing?
 
-As of Spring 2024, UWAGGS has received interest from **over 180** students representing **all 6 faculties** across campus, as well as members from several other universities across Canada. Our members have presented [research projects](https://www.uwaggs.ca/projects.html) at conferences in Canada, the United States, and Europe. **Over 35 sport** and game disciplines are represented in the club, including soccer, hockey, baseball, basketball, and many e-sports.
+As of Winter 2025, UWAGGS has received interest from **over 200** students representing **all 6 faculties** across campus, as well as members from several other universities across Canada. Our members have presented [research projects](https://www.uwaggs.ca/projects.html) at conferences in Canada, the United States, and Europe. **Over 35 sport** and game disciplines are represented in the club, including soccer, hockey, baseball, basketball, and many e-sports.
 
 ### Interested? Get in Touch!
 
