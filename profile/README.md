@@ -20,7 +20,7 @@ UWAGGS has received interest from **over 200** students representing **all 6 fac
 
 ### Interested? Get in Touch!
 
-Join our [mailing list](https://gmail.us10.list-manage.com/subscribe?u=f6e8da7174c7d317758d5e871&id=cd89def6af) and fill out our [declaration of interest](https://docs.google.com/forms/d/e/1FAIpQLScXQDcEcnyehay8hTphzvxWqyYR8fbdHV66DK5gAsAc4ZLhZw/viewform) form.
+Join our [mailing list](https://gmail.us10.list-manage.com/subscribe?u=f6e8da7174c7d317758d5e871&id=cd89def6af) and check out our [website](https://www.uwaggs.ca)!
 <!--
 
 **Here are some ideas to get you started:**
