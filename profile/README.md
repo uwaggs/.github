@@ -12,7 +12,7 @@ Our main objectives are to **facilitate collaboration** on projects and teams fo
 
 ### What do we do?
 
-We host **[bi-weekly hybrid sessions](https://www.uwaggs.ca/sessions.html)** with presentations on statistical applications of data across different domains of sport. We also send **weekly emails** with information about analytics conferences and competitions. We **maintain channels** for students who desire to work together and **publicize student projects** wherever possible for public visibility. Finally, we share external **co-op and internship opportunities** in the sports analytics industry with our members.
+We host **[bi-weekly hybrid sessions](https://www.uwaggs.ca/sessions.html)** with presentations on statistical applications of data across different domains of sport. We also send **emails** with information about analytics conferences and competitions. We **maintain channels** for students who desire to work together and **publicize student projects** wherever possible for public visibility. Finally, we share external **co-op and internship opportunities** in the sports analytics industry with our members.
 
 ### How are we doing?
 
@@ -20,7 +20,7 @@ UWAGGS has received interest from **over 200** students representing **all 6 fac
 
 ### Interested? Get in Touch!
 
-Join our [mailing list](https://gmail.us10.list-manage.com/subscribe?u=f6e8da7174c7d317758d5e871&id=cd89def6af) and check out our [website](https://www.uwaggs.ca)!
+Join our [mailing list](https://preview.mailerlite.io/forms/2313429/186904612195796837/share) and check out our [website](https://www.uwaggs.ca)!
 <!--
 
 **Here are some ideas to get you started:**
